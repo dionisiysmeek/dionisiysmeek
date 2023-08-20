@@ -1,4 +1,5 @@
-![image](https://github.com/dionisiysmeek/dionisiysmeek/assets/126335442/e473c647-1f34-4187-b718-233fba6ec509)
+![image](https://github.com/dionisiysmeek/dionisiysmeek/assets/126335442/26045381-64f6-45a7-b316-1fcf1438a2ee)
+
 
   ♡ ︎₊ ⊹**де**н**ис**  *он\его* **о**на\её*₊ ⊹♡ ︎
  
